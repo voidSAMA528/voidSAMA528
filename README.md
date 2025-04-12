@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ankit Patras Topno aka @voidSAMA528
+- 👋 Hi, I’m Ankit aka @voidSAMA528
 - 👀 
 - 🌱 
 - 😄 This is all I want to say.
